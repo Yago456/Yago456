@@ -6,4 +6,4 @@
 - 📫 Como entrar em contato comigo: (yago.bezerra.silva@escola.pr.gov.br)
 
 
-![](https://media1.tenor.com/m/OTE2C8NwrmwAAAAd/mm.gif0
+![](https://media1.tenor.com/m/OTE2C8NwrmwAAAAd/mm.gif)
