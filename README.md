@@ -4,4 +4,7 @@
 - 🥊 praticante de Muay Thai
 - 🌱 Atualmente estou aprendendo: Programação
 - 📫 Como entrar em contato comigo: (yago.bezerra.silva@escola.pr.gov.br)
-[https://media.tenor.com/OTE2C8NwrmwAAAAM/mm.gif]
+
+
+
+![https://media.tenor.com/OTE2C8NwrmwAAAAM/mm.gif]
